@@ -30,9 +30,9 @@ Contact Us: oussama.saidisbz@gmail.com
 ***
 تحميل Télécharger  Download 
 ======
-[تحميل](https://www.mediafire.com/?8cgtv87m8la58k2)
+[تحميل](http://www.mediafire.com/download/119p0t9qiue6cj6/Taalam.apk)
 =
-[Télécharger](https://www.mediafire.com/?8cgtv87m8la58k2)
+[Télécharger](http://www.mediafire.com/download/119p0t9qiue6cj6/Taalam.apk)
 ==
-[Download](https://www.mediafire.com/?8cgtv87m8la58k2)
+[Download](http://www.mediafire.com/download/119p0t9qiue6cj6/Taalam.apk)
 ===
