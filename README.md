@@ -23,4 +23,16 @@ Contact Us: oussama.saidisbz@gmail.com
 
 صور من التطبيق - Photos du l'application - Screenshots
 ======
-![alt text](http://img11.hostingpics.net/pics/516737first.png "Splash") ![alt text](http://img11.hostingpics.net/pics/636479712.png "Main")
+![alt text](http://img11.hostingpics.net/pics/516737first.png "Splash") 
+![alt text](http://img11.hostingpics.net/pics/636479712.png "Main")
+![alt text](http://img11.hostingpics.net/pics/214209783.png "Game List")
+![alt text](http://img11.hostingpics.net/pics/578129414.png "Alphabets")
+***
+تحميل Télécharger  Download 
+======
+[تحميل](https://www.mediafire.com/?8cgtv87m8la58k2)
+=
+[Télécharger](https://www.mediafire.com/?8cgtv87m8la58k2)
+==
+[Download](https://www.mediafire.com/?8cgtv87m8la58k2)
+===
